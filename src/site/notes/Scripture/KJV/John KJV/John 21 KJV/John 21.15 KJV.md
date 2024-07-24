@@ -1,0 +1,1 @@
+So when they had dined, [[People/Jesus\|Jesus]] saith to [[People/Peter\|Simon Peter]], [[People/Peter\|Simon]], son of [[People/Jonas\|Jonas]], [[Strongs/G25\|lovest]] thou me more than these? He saith unto him, Yea, Lord; thou knowest that I [[Strongs/G5368\|love]] thee. He saith unto him, [[Strongs/G1006\|Feed]] my [[Concepts/Lamb\|lambs]].

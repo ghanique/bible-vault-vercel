@@ -1,0 +1,1 @@
+Now a certain [[Concepts/Man (Person)\|man]] was [[Concepts/Sickness\|sick]], named [[People/Lazarus\|Lazarus]], of [[Locations/Bethany\|Bethany]], the town of [[People/Mary of Bethany\|Mary]] and her sister [[People/Martha\|Martha]].
