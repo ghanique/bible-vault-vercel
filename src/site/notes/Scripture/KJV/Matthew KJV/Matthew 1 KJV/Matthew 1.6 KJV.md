@@ -1,0 +1,1 @@
+and [[People/Jesse\|Jesse]] begat [[People/David\|David]] the [[Concepts/King\|king]]; and [[People/David\|David]] the [[Concepts/King\|king]] begat [[People/Solomon\|Solomon]] of her that had been the [[Concepts/Wife\|wife]] of [[People/Uriah\|Urias]];

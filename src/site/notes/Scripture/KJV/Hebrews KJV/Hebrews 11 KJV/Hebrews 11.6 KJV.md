@@ -1,0 +1,1 @@
+But without [[Concepts/Faith\|faith]] it is impossible to please him: for he that cometh to [[People/God\|God]] must [[Concepts/Faith\|believe]] that he is, and that he is a rewarder of them that diligently seek him.

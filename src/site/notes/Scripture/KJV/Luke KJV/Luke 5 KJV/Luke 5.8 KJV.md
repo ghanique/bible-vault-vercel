@@ -1,0 +1,1 @@
+When [[People/Peter\|Simon Peter]] saw it , he fell down at Jesus' knees, saying, Depart from me; for I am a sinful [[Concepts/Anybody\|man]], O Lord.

@@ -1,0 +1,1 @@
+Now the [[Concepts/Snake\|serpent]] was more subtil than any [[Concepts/Animal\|beast]] of the field which the [[People/LORD God\|LORD God]] had made. And he said unto the [[Concepts/Woman\|woman]], Yea, hath [[People/God\|God]] said, Ye shall not eat of every [[Concepts/Tree\|Tree]] of the garden?

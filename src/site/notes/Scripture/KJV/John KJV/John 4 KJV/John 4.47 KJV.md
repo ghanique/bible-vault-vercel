@@ -1,0 +1,1 @@
+When he heard that [[People/Jesus\|Jesus]] was come out of [[Locations/Judæa\|Judæa]] into [[Locations/Galilee\|Galilee]], he went unto him, and besought him that he would come down, and heal his son: for he was at the point of [[Concepts/Death\|death]].

@@ -1,0 +1,1 @@
+After the same manner also [[People/Jesus\|he]] took the cup, when he had supped, saying, This cup is the new testament in my [[Concepts/Blood\|blood]]: this do ye, as oft as ye drink it, in remembrance of me.

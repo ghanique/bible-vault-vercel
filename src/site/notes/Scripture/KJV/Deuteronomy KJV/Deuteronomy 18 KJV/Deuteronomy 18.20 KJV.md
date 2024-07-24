@@ -1,0 +1,1 @@
+But the [[Concepts/Prophet\|Prophet]], which shall presume to speak a word in my name, which I have not commanded him to speak, or that shall speak in the name of other gods, even that [[Concepts/Prophet\|Prophet]] shall [[Concepts/Death\|Die]].

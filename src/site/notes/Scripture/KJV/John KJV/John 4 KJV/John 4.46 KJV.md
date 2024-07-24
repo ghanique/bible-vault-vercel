@@ -1,0 +1,1 @@
+So [[People/Jesus\|Jesus]] came again into [[Locations/Cana\|Cana]] of [[Locations/Galilee\|Galilee]], where he made the water wine. And there was a certain nobleman, whose son was sick at [[Locations/Capernaum\|Capernaum]].

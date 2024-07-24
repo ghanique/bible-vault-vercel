@@ -1,0 +1,1 @@
+Nevertheless, let every one of you in particular so [[Strongs/G25\|love]] his [[Concepts/Wife\|wife]] even as himself; and the [[Concepts/Wife\|wife]] see that she reverence her [[Concepts/Husband\|husband]].

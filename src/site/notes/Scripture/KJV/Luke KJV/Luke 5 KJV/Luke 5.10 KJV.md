@@ -1,0 +1,1 @@
+and so was also [[People/James (Zebedee)\|James]], and [[People/John\|John]], the sons of [[People/Zebedee\|Zebedee]], which were partners with [[People/Peter\|Simon]]. And [[People/Jesus\|Jesus]] said unto [[People/Peter\|Simon]], Fear not; from henceforth thou shalt catch [[Concepts/Anybody\|men]].

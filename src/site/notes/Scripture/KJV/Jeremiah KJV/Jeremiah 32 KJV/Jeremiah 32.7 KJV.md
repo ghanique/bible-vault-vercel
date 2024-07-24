@@ -1,0 +1,1 @@
+Behold, [[People/Hanameel\|Hanameel]] the son of [[People/Shallum\|Shallum]] thine uncle shall come unto thee, saying, Buy thee my field that is in [[Locations/Anathoth\|Anathoth]]: for the right of redemption is thine to buy it.

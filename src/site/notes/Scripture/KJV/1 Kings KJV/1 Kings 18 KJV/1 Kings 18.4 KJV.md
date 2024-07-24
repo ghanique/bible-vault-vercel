@@ -1,0 +1,1 @@
+for it was so, when [[People/Jezebel\|Jezebel]] cut off the [[Concepts/Prophet\|Prophet]]s of the LORD , that [[People/Obadiah\|Obadiah]] took an hundred [[Concepts/Prophet\|Prophet]]s, and hid them by fifty in a cave, and fed them with bread and water.

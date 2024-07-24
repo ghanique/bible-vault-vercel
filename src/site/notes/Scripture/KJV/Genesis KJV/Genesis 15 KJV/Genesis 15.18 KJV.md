@@ -1,0 +1,1 @@
+In the same day the LORD [[Strongs/H3772\|made]] a [[Concepts/Cutting a covenant\|covenant]] with [[People/Abraham\|Abram]], saying, Unto thy seed have I given this land, from the river of Egypt unto the great river, the river Euphrates:

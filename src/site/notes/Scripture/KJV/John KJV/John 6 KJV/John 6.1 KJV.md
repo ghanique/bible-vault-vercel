@@ -1,0 +1,1 @@
+After these things Jesus went over the [[Locations/Sea of Galilee\|sea of Galilee]], which is the [[Locations/Sea of Galilee\|sea of Tiberias]].

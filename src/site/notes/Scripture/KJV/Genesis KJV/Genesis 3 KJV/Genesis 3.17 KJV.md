@@ -1,0 +1,1 @@
+And unto [[People/Adam\|Adam]] he said, Because thou hast hearkened unto the voice of thy [[People/Eve\|wife]], and hast eaten of the [[Concepts/Tree\|tree]], of which [[People/God\|I]] commanded thee, saying, Thou shalt not eat of it: cursed is the ground for thy sake; in sorrow shalt thou eat of it all the days of thy life;

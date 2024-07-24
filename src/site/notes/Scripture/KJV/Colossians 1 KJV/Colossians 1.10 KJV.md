@@ -1,0 +1,1 @@
+that ye might walk worthy of the Lord unto all pleasing, being fruitful in every good work, and increasing in the knowledge of [[People/God\|God]];

@@ -1,0 +1,1 @@
+And when [[Numbers/Number 40\|forty]] years were expired, there appeared to [[People/Moses\|him]] in the wilderness of mount Sina an [[Concepts/Angel\|angel]] of the Lord in a flame of fire in a bush.

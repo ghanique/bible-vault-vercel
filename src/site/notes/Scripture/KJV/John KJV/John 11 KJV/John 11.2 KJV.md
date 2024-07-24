@@ -1,0 +1,1 @@
+(It was that [[People/Mary of Bethany\|Mary]] which anointed [[People/Jesus\|the Lord]] with [[Concepts/Ointment\|ointment]], and wiped his feet with her hair, whose brother [[People/Lazarus\|Lazarus]] was [[Concepts/Sickness\|sick]].)

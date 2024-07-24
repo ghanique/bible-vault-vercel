@@ -1,0 +1,1 @@
+Thinkest [[People/Peter\|thou]] that [[People/Jesus\|I]] cannot now pray to [[People/The Father\|my Father]], and he shall presently give me more than [[Numbers/Number 12 Legions\|twelve legions]] of [[Concepts/Angel\|angels]]?[[Numbers/Number 12\|Number 12]][[Concepts/Legion\|Legion]]

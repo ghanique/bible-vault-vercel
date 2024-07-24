@@ -1,0 +1,1 @@
+And we have known and [[Concepts/Faith\|believed]] the [[Strongs/G26\|love]] that [[People/God\|God]] hath to us. [[People/God\|God]] is [[Strongs/G26\|love]]; and he that dwelleth in [[Strongs/G26\|love]] dwelleth in [[People/God\|God]], and [[People/God\|God]] in him.

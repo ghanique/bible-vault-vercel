@@ -1,0 +1,1 @@
+And it came to pass that night, that the [[Concepts/Angel\|angel]] of the LORD went out, and smote in the camp of the [[Locations/Assyrian\|Assyrians]] an [[Numbers/Number 185000\|hundred fourscore and five thousand]]: and when they arose early in the morning, behold, they were all dead corpses.

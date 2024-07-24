@@ -1,0 +1,1 @@
+For [[People/Jesus\|he]] hath [[Strongs/G4160\|made]] him to be [[Concepts/Sin (noun)\|sin]] for us, who knew no [[Concepts/Sin (noun)\|sin]]; that we might be [[Strongs/G1096\|made]] the [[Concepts/Righteousness\|Righteousness]] of [[People/God\|God]] in him.

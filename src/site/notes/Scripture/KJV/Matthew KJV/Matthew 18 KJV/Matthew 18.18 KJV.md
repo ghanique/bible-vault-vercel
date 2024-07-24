@@ -1,0 +1,1 @@
+Verily I say unto you, Whatsoever ye shall bind on [[Concepts/Earth\|earth]] shall be bound in [[Concepts/Heaven\|heaven]]: and whatsoever ye shall loose on [[Concepts/Earth\|earth]] shall be loosed in [[Concepts/Heaven\|heaven]].

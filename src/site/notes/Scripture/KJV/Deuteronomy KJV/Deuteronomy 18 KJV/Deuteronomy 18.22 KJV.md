@@ -1,0 +1,1 @@
+When a [[Concepts/Prophet\|Prophet]] speaketh in the name of the LORD , if the thing follow not, nor come to pass, that is the thing which the LORD hath not spoken, but the [[Concepts/Prophet\|Prophet]] hath spoken it presumptuously: thou shalt not be afraid of him.

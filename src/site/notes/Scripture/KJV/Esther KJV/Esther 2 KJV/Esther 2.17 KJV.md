@@ -1,0 +1,1 @@
+And the [[People/Ahasuerus\|king]] loved [[People/Esther\|Esther]] above all the [[Concepts/Woman\|women]], and she obtained [[Concepts/Grace\|grace]] and [[Concepts/Favor\|favour]] in his sight more than all the virgins; so that he set the royal crown upon her head, and made her [[Concepts/King\|queen]] instead of [[People/Vashti\|Vashti]].

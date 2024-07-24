@@ -1,0 +1,1 @@
+[[People/Jehoshaphat\|Jehoshaphat]] was thirty and five years old when he began to reign; and he reigned twenty and five years in Jerusalem. And his mother's name was [[People/Azubah\|Azubah]] the daughter of [[People/Shilhi\|Shilhi]].

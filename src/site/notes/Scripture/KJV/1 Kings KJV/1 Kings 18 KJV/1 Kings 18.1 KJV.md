@@ -1,0 +1,1 @@
+And it came to pass after many days, that the word of the LORD came to [[People/Elijah\|Elijah]] in the third year, saying, Go, shew thyself unto [[People/Ahab\|Ahab]]; and I will send rain upon the [[Concepts/Earth\|earth]].

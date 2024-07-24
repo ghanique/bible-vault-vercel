@@ -1,0 +1,1 @@
+This [[People/Moses\|Moses]], whom they refused, saying, Who made thee a ruler and a judge? the same did [[People/God\|God]] send to be a ruler and a deliverer by the hand of the [[Concepts/Angel\|angel]] which appeared to him in the bush.

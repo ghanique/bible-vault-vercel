@@ -1,0 +1,1 @@
+giving thanks unto the Father, which hath made us meet to be partakers of the inheritance of the saints in light:

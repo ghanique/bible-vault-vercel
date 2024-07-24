@@ -1,0 +1,1 @@
+And [[People/Asa\|Asa]] slept with his fathers, and was buried with his fathers in the city of [[People/David\|David]] his father: and [[People/Jehoshaphat\|Jehoshaphat]] his son reigned in his stead.

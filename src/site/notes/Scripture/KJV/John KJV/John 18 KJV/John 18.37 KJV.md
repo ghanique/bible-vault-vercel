@@ -1,0 +1,1 @@
+[[People/Pilate\|Pilate]] therefore said unto him, Art thou a king then? [[People/Jesus\|Jesus]] answered, Thou sayest that I am a king. To this end was I born, and for this cause came I into the [[Concepts/Earth\|world]], that I should bear witness unto the [[Concepts/Truth\|truth]]. Every one that is of the [[Concepts/Truth\|truth]] heareth my voice.

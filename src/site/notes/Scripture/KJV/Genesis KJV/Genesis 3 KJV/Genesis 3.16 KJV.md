@@ -1,0 +1,1 @@
+Unto the [[Concepts/Woman\|woman]] he said, I will greatly multiply thy sorrow and thy conception; in sorrow thou shalt bring forth children; and thy desire shall be to thy [[Concepts/Husband\|husband]], and he shall rule over thee.

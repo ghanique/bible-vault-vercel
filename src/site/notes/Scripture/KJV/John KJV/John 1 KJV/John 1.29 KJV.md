@@ -1,0 +1,1 @@
+The next day [[People/John the Baptist\|John]] seeth [[People/Jesus\|Jesus]] coming unto him, and saith, Behold the [[People/Jesus\|Lamb of God]], which taketh away the [[Concepts/Sin (noun)\|sin]] of the [[Concepts/Earth\|world]].

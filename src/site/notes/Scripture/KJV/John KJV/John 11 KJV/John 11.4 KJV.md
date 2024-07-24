@@ -1,0 +1,1 @@
+When [[People/Jesus\|Jesus]] heard that, he said, This [[Concepts/Sickness\|sickness]] is not unto [[Concepts/Death\|death]], but for the glory of [[People/God\|God]], that [[People/Jesus\|the Son of God]] might be glorified thereby.

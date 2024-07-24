@@ -1,0 +1,1 @@
+And [[People/Jesus\|Jesus]] said, Make the [[Concepts/Man\|men]] sit down. Now there was much grass in the place. So the [[Concepts/Man\|men]] sat down, in number about [[Numbers/Number 5000\|five thousand]].

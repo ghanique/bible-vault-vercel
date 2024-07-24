@@ -1,0 +1,1 @@
+For the invisible things of him from the [[Concepts/Creationism\|creation]] of the [[Concepts/Earth\|world]] are clearly seen, being understood by the things that are made, even his eternal power and Godhead; so that they are without excuse:

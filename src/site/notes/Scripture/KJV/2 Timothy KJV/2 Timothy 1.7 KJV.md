@@ -1,0 +1,1 @@
+For [[People/God\|God]] hath not given us the spirit of [[Concepts/Fear (Afraid)\|Fear]]; but of power, and of [[Concepts/Love\|love]], and of a sound mind.

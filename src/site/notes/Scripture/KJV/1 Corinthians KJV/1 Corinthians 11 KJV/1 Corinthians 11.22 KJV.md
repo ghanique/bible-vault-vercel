@@ -1,0 +1,1 @@
+What? have ye not houses to eat and to drink in? or despise ye the church of [[People/God\|God]], and shame them that have not? What shall I say to you? shall I praise you in this? [[People/Paul\|I]] praise you not.

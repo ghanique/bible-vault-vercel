@@ -1,0 +1,1 @@
+Wherefore, as by one [[Concepts/Man (Person)\|man]] [[Concepts/Sin (noun)\|sin]] entered into the [[Concepts/Earth\|world]], and death by [[Concepts/Sin (noun)\|sin]]; and so death passed upon all [[Concepts/Mankind\|men]], for that all have [[Concepts/Sin (verb)\|sinned]]:

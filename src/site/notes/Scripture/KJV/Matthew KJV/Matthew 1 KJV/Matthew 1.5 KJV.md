@@ -1,0 +1,1 @@
+and [[People/Salmon\|Salmon]] begat [[People/Boaz\|Booz]] of [[People/Rahab\|Rachab]]; and [[People/Boaz\|Booz]] begat [[People/Obed\|Obed]] of [[People/Ruth\|Ruth]]; and [[People/Obed\|Obed]] begat [[People/Jesse\|Jesse]];

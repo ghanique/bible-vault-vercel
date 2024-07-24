@@ -1,0 +1,1 @@
+And [[People/Moses\|Moses]] said unto [[People/God\|God]], Who am I, that I should go unto Pharaoh, and that I should bring forth the children of [[Locations/Israel\|Israel]] out of [[Locations/Egypt\|Egypt]]?

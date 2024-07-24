@@ -1,0 +1,1 @@
+And [[People/David\|David]] said unto [[People/Saul (king)\|Saul]], Thy servant kept his father's [[Concepts/Sheep\|sheep]], and there came a [[Concepts/Lion\|lion]], and a [[Concepts/Bear\|bear]], and took a [[Concepts/Lamb\|lamb]] out of the flock:

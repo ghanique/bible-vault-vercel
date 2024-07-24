@@ -1,0 +1,1 @@
+[[People/Pilate\|Pilate]] saith unto [[People/Jesus\|him]], What is [[Concepts/Truth\|truth]]? And when he had said this, he went out again unto the [[Locations/Israel\|Jews]], and saith unto them, I find in him no fault at all.

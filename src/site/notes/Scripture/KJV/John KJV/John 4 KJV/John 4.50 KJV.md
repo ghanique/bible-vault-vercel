@@ -1,0 +1,1 @@
+[[People/Jesus\|Jesus]] saith unto him, Go thy way; thy son liveth. And the [[Concepts/Man (Person)\|man]] [[Concepts/Faith\|believed]] the word that [[People/Jesus\|Jesus]] had spoken unto him, and he went his way.
